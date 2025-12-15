@@ -16,4 +16,7 @@ Memulai usaha mandiri di bidang desain grafis sejak tahun 2021 pada masa pandemi
 ## 🔗 Link Terkait
 - 🌐 GitHub: [github.com/AhmadAbdurRozaq](https://github.com/AhmadAbdurRozaq)
 - 🎨 Instagram Freelance: [@arwork_design](https://instagram.com/arwork_design)
+- Figma: [Ahmad Abdur Rozaq](https://www.figma.com/@ahmadabdurrozaq)
+
+
 
